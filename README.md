@@ -1,2 +1,0 @@
-# cos.html
-nie wiem
